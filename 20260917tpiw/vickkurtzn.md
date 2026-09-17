@@ -1,0 +1,113 @@
+# 主题教育 || 第二批主题教育中，各地深化拓展整治形式主义为基层减负工作
+
+> 更新时间：2026-09-17 (UTC+8)
+
+习近平总书记强调，要把实的要求贯穿主题教育全过程，坚决防止和克服形式主义、官僚主义，实实在在抓好理论学习和调查研究，实实在在检视整改突出问题，实实在在办好惠民利民实事，用实干推动发展、取信于民。　　第二批主题教育开展以来，不少地方深化拓展整治形式主义为基层减负工作，结合实际上下联动、综合施策，切实让基层感受到主题教育带来的新变化新气象。　　**纠治文山会海 求实效办实事**　　1月6日，湖北省宜昌市猇亭区云池街道下马槽社区，党总支书记吕明芳刚在居民家中宣传完冬季取暖安全知识，又赶忙和社区工作者会合，筹备新年活动。“去年底的民众测评，社区居民满意度明显提高，很大程度上得益于通过减文减会，我们有了更多时间和群众接触，为群众办事。”吕明芳说。　　第二批主题教育开展以来，宜昌市委先后3次进行专题研究调度，从小切口入手，持续整治形式主义、官僚主义的突出问题，为基层干部松绑，进一步激发基层工作的创新活力。宜昌市委主要领导将“整治形式主义为基层减负”纳入主题教育调研课题，发放问卷1.4万余份，召开座谈会、研讨会，广泛征求意见，研究制定改进调查研究、规范发文、精简会议等9个方面16条措施，在10个县乡村和企事业单位设置监督直报点，实现对基层减负情况的动态监管。　　“市纪委监委、市委组织部等相关部门还来社区调研，听取意见建议，一同分析问题，精准删除、整改不必要的工作流程。”吕明芳介绍，经过一番梳理和整治，社区减少定期报表9份，清除各类挂牌、服务标识、功能指示牌15个，明确35项证明事项清单和盖章事项，清单外证明事项压减了60%。　　宜昌市夷陵区樟村坪镇古村村坐落在群山之中。春节近了，返乡村民多了起来，党支部书记刘志华把道路、供水、供暖等方面的隐患排查纳入日程。每天吃过早饭，他就带上一些党员和村民，仔细检查路面和管线。“我们村离城区100多公里，有很长的山路，如果要去城里‘跑会’，一个来回就得六七个小时。现在，会议基本是线上开，而且相关的事项可以合并讨论，开会次数也就减少了。”刘志华说。　　第二批主题教育中，夷陵区对视频会议系统进行全面升级，全区13个乡镇（街道、试验区）173个村24个社区、29个一级区直部门均实现“一屏畅联”，会议、培训、调度等均可“一屏掌握”，减少基层干部“跑会”。　　为防止“冗会”“长会”“跑会”现象反弹，宜昌市以常态化“自查+抽查+反向调查”持续推动减负工作走深走实，组织相关单位对村（社区）、企业（项目）、党政机关等开展蹲点调研，纠治基层反映强烈的调研陪同多、文山会海等形式主义问题，对7个县市区13个乡镇（街道）、20个村进行督导检查，发现并纠正了5方面14个问题。　　**规范督查考核 抓实干重实绩**　　新年第一周，吉林省长春市农安县巴吉垒镇党委书记吕晓龙整理好资料，带上一沓宣传册，驱车到市里忙招商。他说：“现在督查检查考核数量少了，不用再在留痕、迎检上耗精力了，把时间用来谋发展、抓落实，自己心里也踏实！”　　第二批主题教育中，农安县改进督查检查工作方式方法，明确要求不得把是否拍照、公示挂牌等留痕情况作为各类检查重点和考核赋分项。除紧急突发工作外，不得临时要求基层填报表格、提供材料。　　“2023年，县委县政府下发的文件数较上年同比减少20%左右，减少的文件中，有不少是过去出于留痕需要而下发的。”农安县委办公室干部鞠丽莹说。　　吉林省抓实上下衔接联动，省级层面制定优化《关于深化拓展为基层减负工作加强“三减一规范”的具体措施》，各地以开展第二批主题教育为契机，在理论学习、调查研究、推动发展、检视整改中，将纠治和力戒形式主义、官僚主义摆在更加突出的位置，以整治成果彰显主题教育成效。长春市纪委监委通过在村（屯）设立监督联络站、在市直部门设立基层减负监测点、在基层单位设立工作联系点等方式，及时了解掌握各地各部门收文发文、参会开会、政务APP，以及数据造假、“形象工程”等情况。　　让督查检查考核少而精、深而实，是广大基层干部的心声。吉林省各地科学制定督检考年度计划，实行审批报备制度，持续压减总量，市（州）层面督检考计划事项总量由2022年的203项减少到173项，压减了14.8%，重复督查、多头检查、无效考核明显减少。　　重庆街道位于长春市朝阳区核心地段，有多家商场和金融企业。这些天，街道党工委书记王德春正开展调研走访，了解企业需求和制约企业发展的问题。他说：“现在督查检查更多的是不打招呼、直插现场、直面群众，而不是简单地听汇报，这更考验我们日常工作的成色。用在印资料、开会议、陪同检查上的时间少了，我们更要把群众、企业服务好，把问题解决好。”　　为增强督查检查的科学性、针对性、实效性，长春市对适合暗访的督查检查，一律以“四不两直”方式开展，能选择有代表性地方的就不搞全覆盖，避免向基层过度索要材料、重复填表报数。**既松绑又赋能 激励担当作为**　　“孙书记，咱们居民区的活动空间好不好再扩充一下呀？”　　“您放心，这个问题我们认真研究。”　　花在开证明、录入资料上的时间少了，上海市浦东新区塘桥街道南城居民区党总支书记孙红菱有了更多时间在各小区走动，和居民们攀谈、了解需求。　　“以往，居民去一些部门办事，总被要求先找居村组织开具证明。但许多证明并无必要，有一些证明也不应由居村组织开具。实行居村事务准入管理后，这方面负担大大减轻。”孙红菱说。　　现在，南城居民区仅保留了居民区党总支、居民委员会、居民区党群服务站、居民区新时代文明实践站等必要的牌子。“最多的时候，这里有近50块牌子。挂牌的减少，折射了居民区定位、作用的明晰，卸下不必要的负担，回归主责、服务居民。”孙红菱说。　　主题教育中，上海市着力破解“基层不必要不合理负担较重”难题，制定了居村组织事务准入管理、依法履职和依法协助的“一办法两清单”，市、区两级建立审核把关机制。基层减负情况纳入书记抓基层党建工作述职评议考核、述责述廉、中央八项规定精神专项督查和相关党政群机构考评的内容。目前在上海市，居村出具证明由47项精简至3项，高频填报系统由38个精简至15个，室外挂牌不超过6项，室内不超过8项。　　在黄浦区瑞金二路街道延中社区，200多米长的进贤路两旁有60多家餐饮类商户，其中不少是“网红店”，高峰时段每小时可涌入800人次，周边还住着近千户居民。　　“商户多、人流量大，社区工作相对繁琐，线上平台很给力。”延中社区的社区工作者张燕，娴熟地操作由瑞金二路街道开发的“以房管人”应用，应用里企业商户等信息一目了然。张燕和同事们可以通过大数据，看到店铺申报的轻餐饮营业执照、申请装修等需求，提前介入提供服务，进行引导提示。　　第二批主题教育中，上海市开发并在居村推广基层治理数字化平台，实现了“一口登录、一键查询、一屏使用”，一些区、街镇结合实际开发易操作、易维护、易升级的居村“轻应用”，加强数字赋能。同时，着力破解基层反映集中的系统多、填报重复、数据不统一等问题，严防“指尖上的形式主义”。　　“报表、系统、证明等方面减量，给基层干部带来的是服务增量。以往要由6名干部负责的系统，现在登录一个平台就能操作。坐办公室的时间少了，跟居民面对面接触多了。”闵行区颛桥镇银一居民区党总支书记张学军说。　　为切实减少居村干部多系统重复填报工作量，闵行区集成涉及居村填报的70个业务系统，精简28张台账报表，并提供一对多台账发布、自动化报表生成、全方位工作记录等功能。
+来源：人民日报
+
+本期审核：加永群措
+
+本期责编：赤列江才
+
+本期校对：普布次仁
+
+本期编辑：嘎玛玉珍
+
+## 相关阅读
+
+- [西安试管婴儿诊疗中心三代试管婴儿费用明细，单周期速阅](https://github.com/qws8inv2p1/parenting-daily-tips/blob/main/20260910klpf/nfnzjpaalk.md)
+- [科学术后镇痛——告别忍痛，迈向精准无痛时代](https://github.com/ntyvivo01u/baby-feeding-guide/blob/main/20260911rckp/phwtzslqkp.md)
+- [孕妇餐后2小时血糖正常值](https://github.com/hhd0wt4kzq/parenting-daily-tips/blob/main/20260915kdyt/wxdnkoxnkq.md)
+- [【通知】西北妇女儿童医院生殖中心特邀遗传学专家李存玺教授开展生殖遗传咨询工作](https://github.com/h538vradpp/family-health-notes/blob/main/20260916kfic/uxbxdvofcl.md)
+- [小儿推拿课堂 ▏家长如何在早期发现自己孩子是不是患有斜颈？](https://github.com/p35ieeld8a/pregnancy-care-hub/blob/main/20260916lfcq/iaxkcayvyn.md)
+- [重庆市试管婴儿生-婴-孩价格多少,试管婴儿生-婴-孩医院推荐！](https://github.com/hhd0wt4kzq/pregnancy-care-hub/blob/main/20260910impr/gihezowfbk.md)
+- [医生，春节我能返乡出行吗？来自孕妈们的“出行焦虑”](https://github.com/l0mxvbb0j0/mommy-baby-notes/blob/main/20260917unxj/oekwnxysdo.md)
+- [评建并举促发展 锐意进取启新程——我院迎接国际医院评审首轮辅导](https://github.com/bjpnmb0r46/infant-health-guide/blob/main/20260916eecp/pyvsjyuhlg.md)
+- [单身女性去泰国做试管的流程是怎么样的？单身女性去泰国做试管的步骤有哪些](https://github.com/i90i293865/family-baby-log/blob/main/20260911fxig/ddpajsdrza.md)
+- [hcg翻倍慢孩子会畸形  hcg翻倍与孩子发育情况](https://github.com/rnf9cvz5iw/pregnancy-diary-hub/blob/main/20260915lodp/lphgmulqjs.md)
+- [什么样的卵巢囊肿会癌变](https://github.com/cwz1rtzls4/family-health-notes/blob/main/20260915aajp/yjqvpqrlkv.md)
+- [温馨提示 ||  漯河市中心医院：实行全预约分时段就诊](https://github.com/ntyvivo01u/new-parent-notes/blob/main/20260916byol/mrxfknccss.md)
+- [通便的水果有哪些](https://github.com/na1l60kg9l/family-baby-log/blob/main/20260915ghhd/cjqoxqmtaa.md)
+- [试管婴儿**后卵巢变大能不能恢复正常？如何促进卵巢恢复？](https://github.com/uvuw5du4om/mommy-care-diary/blob/main/20260911vuip/zlbrrxkpoi.md)
+- [第一医院姜杰教授受邀参加第24届国际腔镜大会发言介绍3D胸腔镜手术经验，国内仅3人在大会发言](https://github.com/tp7gz3q4gt/child-care-essays/blob/main/20260916nkva/mazuiytgbg.md)
+- [“南都晨报”专访河南省十二届人大代表、南阳市第一人民医院院长贺利民](https://github.com/bnab3b3j5y/baby-food-notes/blob/main/20260916lysf/onfoincmgz.md)
+- [动态心电图十个贴片的位置图](https://github.com/mxtw9dwa7v/child-education-notes/blob/main/20260911luxd/avecejkzvh.md)
+- [女性经常喝玫瑰花茶对身体好吗？长期喝玫瑰花茶的好处有哪些](https://github.com/l0mxvbb0j0/child-care-essays/blob/main/20260915ukxe/mhpsdwsspb.md)
+- [在广州可以做试管的私立机构有哪些](https://github.com/w4nejibsgs/parenting-daily-tips/blob/main/20260910psof/capqmwnmyb.md)
+- [干细胞移植后半个月可以吃生菜么](https://github.com/na1l60kg9l/kids-health-guide/blob/main/20260915rwcp/lxosoakbgn.md)
+- [北京试管婴儿医院成功率哪家高？揭秘医院成功率排行！](https://github.com/jg9otl86or/child-care-essays/blob/main/20260910rpah/fhdnhenaut.md)
+- [桃子罐头](https://github.com/vjd2jnnrxj/infant-nutrition-hub/blob/main/20260915jwit/tdranaczjf.md)
+- [以案促学 以赛促教 | 柳州市工人医院内科基地举办2026年住培病例分享比赛](https://github.com/l5q2j5iic2/family-health-notes/blob/main/20260917zidu/oohnnmnqqt.md)
+- [哇…前列腺增生也能“冬病夏治”？](https://github.com/h538vradpp/mommy-baby-notes/blob/main/20260916syhd/pmcciesxqm.md)
+- [惨！深圳男子被电锯割喉，3天3夜用“神器”为他续命！](https://github.com/helxwyn5td/child-care-diary/blob/main/20260916qtal/rgdkgwkiwp.md)
+- [【重大医讯】助力妇儿健康  两位国家级专家来院开展义诊活动](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260916abua/yskyrzdruc.md)
+- [健康科普｜当遇到突发性耳聋，应该注意查些什么？](https://github.com/zntce2ojnh/family-health-notes/blob/main/20260917uasb/jwzpmmbfjt.md)
+- [什么岗位要查三代试管婴儿](https://github.com/l9lvqnbe4d/baby-growth-journal/blob/main/20260911mikv/kxiwcbcual.md)
+- [岗位·初心丨⑮山东省妇幼保健院护理部主任李占娥](https://github.com/fbw1fx15bs/child-care-essays/blob/main/20260916ukog/crampasxwy.md)
+- [我院举办健康宣教比赛——5·12护士节系列活动](https://github.com/iebkyzpjrn/family-health-notes/blob/main/20260916hrgi/naethijcoo.md)
+- [儿童健康｜马蹄内翻足的前世与今生](https://github.com/cfo5j5htmg/family-parenting-notes/blob/main/20260916rxid/ryutxwepel.md)
+- [小小身材，多种用途的“曼月乐”](https://github.com/h5z4rt20ta/baby-care-journal/blob/main/20260916kgqr/sfylxsvbzi.md)
+- [女性性激素检查这几个关键指标是什么意思？必收藏！](https://github.com/j593cre19a/baby-care-journal/blob/main/20260916vsey/hwqgydequl.md)
+- [短方案试管成功率高不高不一定，多和这些因素有关要知道](https://github.com/t5ok6hw1uj/pregnancy-diary-hub/blob/main/20260915vfdd/pxvzcuisok.md)
+- [口碑排名:昆明试管医院成功率](https://github.com/vdzzg6wfu2/child-care-diary/blob/main/20260915ewik/jtwgwciebi.md)
+- [报名！第五届“母婴嘉年华”即将开启！](https://github.com/bnab3b3j5y/pregnancy-diary-hub/blob/main/20260916fxww/tyqcrocklm.md)
+- [厦门三代试管医院大盘点，一篇文章带你全了解！](https://github.com/zntce2ojnh/baby-care-journal/blob/main/20260910inuu/iitutadopo.md)
+- [科普 | PPOS技术的衍生适配：两类特殊人群的助孕参考](https://github.com/agufpr6079/pregnancy-care-hub/blob/main/20260917ntbh/scipduqodg.md)
+- [青岛哪里做试管婴儿比较好？揭秘青岛前十家私立医院口碑排行！](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260915pias/frfrkqyvzk.md)
+- [【我为群众办实事】紧急动员，迎着朝阳出发！市博爱医院全力支援全市大规模核酸采样检测工作](https://github.com/lq2k5x6kqh/infant-nutrition-hub/blob/main/20260917rvso/nbsjkagbvm.md)
+
+## 推荐站点
+
+- [试管代怀的优点_代生机构价格表,宝宝喝氨基酸奶粉有营养吗，氨基酸奶粉适合什么宝宝喝](https://www.zrbbavaq.cn/30569234912979.html)
+- [2026天津试管代生中介医院排名这2家试管代生中介成功率高！全程费用解析！](https://www.gzgudadl.cn/3849295627380.html)
+- [腺肌瘤试管婴儿初诊多少钱 子宫腺肌瘤做试管婴儿长方案](https://www.esc45.com/57.html)
+- [供卵试管婴儿申请条件全解析：哪些人符合？排队要等多久？](https://www.haojiezhishi.cn/1.html)
+- [AMH 0.02的绝地求生：拦截早衰结局，通过DHEA与中药联合调理方案](https://www.weywjei.cn/20250826-179.html)
+- [试管助孕与彩礼：未婚先孕是否影响彩礼返还？](https://www.uueamru.cn/20250821-76.html)
+- [母乳营养补充剂：提升母乳质量与代生代怀宝宝的营养保障](https://www.huaiyunq.cn/212194613029.html)
+- [2026深圳辅助生育费用大揭秘：各项开销明细与省钱攻略](https://www.tjsjyongsheng.cn/113905262397.html)
+- [探秘青岛规模最大的供卵中心：崂山区专业机构的环境与资质](https://www.phetpalace.com/63.html)
+- [北京三代试管囊胚检测指南：是否必须与费用解析](https://www.sdwmtgccl.cn/48913019036308.html)
+- [试管人工周期怀孕孕酮低，试管人工周期孕酮低有没有关系？](https://www.xmxinyhwzhs.cn/19337996619692.html)
+- [2026长沙私立借卵机构排行榜揭露-附机构借卵卵源等待时间 ,代孕机构中心](https://www.bjwdzxkj.cn/2277281240593.html)
+- [试管促排多少卵泡正常](https://www.mymydz.cn/313104902556.html)
+- [成都供(借)卵试管婴儿医院排名火热发布，附2026供卵生男孩具体条件分析 ,代怀包成功](https://www.cmanrxrr.cn/1687139543429.html)
+- [河北代生价格行情自然促排卵费用多少(河北代生价格行情促排卵费用多少钱)](https://www.sjb493.cn/18368612937781.html)
+- [['https://www.rongyixueyuan.com/101.html', '揭秘广州高端私立试管医院：精湛技术与优质服务']](https://www.rongyixueyuan.com/101.html)
+- [42岁取卵8个一般能配几个？,供卵试管费用](https://www.syldezdhkj.cn/16582466607645.html)
+- [泰国代生宝宝中介公司成功率最高医院真实成功率(泰国代生宝宝中介公司成功率挺高)](https://www.sjzgwfjwzhs.cn/21485964331050.html)
+- [糖尿病患者能否进行三代试管婴儿助孕？](https://www.vhpowpj.cn/20250821-167.html)
+- [吃榴莲有助于卵泡发育](https://www.skiguo.cn/20250927-67.html)
+- [做试管为什么第二次比第一次成功率高](https://www.hghbjm.com/231.html)
+- [广州三代试管婴儿助孕电话及医保报销解读](https://www.dhsuzouzy.cn/38856153029146.html)
+- [沈阳找个代生的，沈阳哪个医院能做三代试管婴儿？有没有沈阳妇婴？](https://www.bjfhyly.com/500.html)
+- [['https://www.hnyataikj.cn/18591099839761.html', '供卵助孕咨询机构分享：试管基础检查全攻略与费用解析']](https://www.hnyataikj.cn/18591099839761.html)
+- [月经恶臭难闻怎么回事](https://hangzhou.ccxwlkx.cn/29.html)
+- [包生男孩多少钱_代生子包成功,孕期地贫三项筛查没有问题，出生后的宝宝会有](https://www.hs52.cc/sandaigongluandaihuai/476.html)
+- [试管捐卵流程:产后肚子会小多少（流产后饮食）](https://www.mimi567.com/110.html)
+- [多囊卵巢供血用什么药（多囊卵巢用药）](https://www.jzcwjz.net/173.html)
+- [河南郑州做试管婴儿3代价目表](https://www.wqxmm.cn/104300015546.html)
+- [2026年乌鲁木齐私立供卵机构推荐及三代生男孩费用详情](https://www.chdhaishendq.cn/214204863399.html)
+- [中心代怀产子-舟山供卵试管婴儿医院排名，附试管助孕机构一览？](https://www.dyokx.com/hangzhoudaihuaishiguan/206.html)
+- [试管代生价钱amh值0.77小于1ng/ml用什么试管代生价钱方案取卵？](https://www.sdxxy.cn/20250522-466.html)
+- [运城有多囊卵巢综合症的女人可以做试管婴儿吗？决策辅助](https://www.vecsi.cn/2750.html)
+- [助孕价格费用大概多少？2026年辅助生殖全包套餐市场调研报告](https://www.szanguangkeji.cn/tongxingshiguanzhuyun/100.html)
+- [代生男孩技术-卵巢功能为什么会衰退？治疗后可以恢复卵巢功能？](https://www.sdjiaxin.net/934.html)
+- [多囊不排卵女性打HCG针的作用是补充促性腺激素吗？](https://www.hbhuihaohb.cn/156.html)
+- [tt国际生殖中心怎么样？资质、成功率与口碑全面评估](https://www.ewdboe.cn/100905842344.html)
+- [['https://www.hongyuhuagong.cn/10128877110408.html', '【2026最新】上海辅助生殖机构怎么选？公立医院vs正规服务对比指南']](https://www.hongyuhuagong.cn/10128877110408.html)
+- [汕头供卵产子机构电话：24小时汕头助孕在线咨询](https://www.chengdusokh.cn/312280515295.html)
+- [做试管为什么要吃阿司匹林？阿司匹林作用一览](https://www.dymgp.com/7836.html)
+- [福州正规供卵医院排队实况：3年起步还是遥遥无期？](https://www.toothree006.cn/123673840238.html)
+- [备孕吃什么好呢？试管妈妈可以吃扇贝吗？](https://www.dygsdyw.com/120640726174.html)
+- [临沂做代生医生咨询孩子多少钱 临沂代生医生咨询成功率比较高的医院](https://www.anyhdlyb.cn/3599079593350.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanqun/20250608/6275.html', 'VIP尊享：新孕国际如何为高端家庭提供私密助孕定制服务？']](https://www.btwtjx.cn/wuhangongluanshiguanqun/20250608/6275.html)
+- [['https://www.xczxcy.com/108.html', '康瑞保复方肝素钠尿囊素凝胶可以去疤痕吗？使用测评']](https://www.xczxcy.com/108.html)
+- [供卵生小孩：卵巢早衰借卵试管的成功率大吗](https://www.luruihang.com/2221.html)
+- [孕期吸烟胎儿会畸形！！！,单身代孕](https://www.dgshengxigongchengsl.cn/1706519467519.html)
+- [连续失眠一周后胎停？长期失眠会不会导致胎停？](https://www.jszgyh.com/400830854047.html)
+- [['https://www.airpoolmall.com/103.html', '上海供卵自怀中心地址及专家团队，助力圆梦求子']](https://www.airpoolmall.com/103.html)
+- [['https://www.cheguangfu.cn/238.html', '世纪代孕官网,试管婴儿性别鉴定对胎儿有影响吗？']](https://www.cheguangfu.cn/238.html)
+- [硚口区、汉阳区哪里有做试管的中介？武汉西部区域试管中介盘点](https://www.satghenga.cn/210370726209.html)
+
+*本文整理自母婴健康资讯，仅供科普参考。*
